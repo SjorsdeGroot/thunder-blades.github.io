@@ -17,7 +17,7 @@ De sport lijkt eigenlijk helemaal niet op hockey, behalve dat er een stick en ee
 
 Omdat de bal (bijna) altijd in het veld blijft, en er weinig regels zijn, blijft het spelletje lekker doorgaan. Iedereen wordt bij het spel betrokken en inzet bepaald (zeker bij de jeugd) een heel groot deel van hoe goed het gaat.
 
-Een paar van de belangrijkste regels.
+# Een paar van de belangrijkste regels.
 - Veiligheid staat voorop. Een hoge stick is niet toegestaan, slidings ook niet. 
 - Je mag beide kanten van de stick gebruiken.
 - Je mag de bal met de voeten spelen.
