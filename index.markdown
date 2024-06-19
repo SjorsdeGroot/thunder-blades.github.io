@@ -5,9 +5,9 @@ title: Home
 layout: home
 ---
 
-# Open training 27 mei
+# Open training 24 juni
 
-Op maandag 27 mei kun je een keertje gratis een floorball les uitproberen. De training staat speciaal in het teken voor nieuwe spelers. Wij hebben het floorball materiaal , dus je hoeft alleen je normale gymspullen mee te nemen.
+Op maandag 24 juni kun je een keertje gratis een floorball les uitproberen. De training staat speciaal in het teken voor nieuwe spelers. Wij hebben het floorball materiaal , dus je hoeft alleen je normale gymspullen mee te nemen.
 
 Waar: Buurthuis Lumen, Velveweg 54, Enschede. In de grote gymzaal.
 
