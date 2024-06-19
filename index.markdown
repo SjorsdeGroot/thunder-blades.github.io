@@ -13,7 +13,7 @@ Waar: Buurthuis Lumen, Velveweg 54, Enschede. In de grote gymzaal.
 
 Wanneer: 16:00 – 17:00 (graag 15:45 aanwezig)
 
-Voor wie: Iedereen 8 – 12 jaar oud
+Voor wie: Groep 3 - 8
 
 Aanmelden kan door een mailtje te sturen naar [bestuur.floorballenschede@gmail.com](mailto:bestuur.floorballenschede@gmail.com) of via een berichtje naar 06 31209134 (Sjors de Groot)
 
