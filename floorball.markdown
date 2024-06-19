@@ -4,7 +4,7 @@ title: Wat is floorball?
 permalink: /floorball/
 ---
 
-4 vs 4 zoals bij de jeugd: 
+4 vs 4 zoals bij de jeugd: https://www.youtube.com/watch?v=EdHDi4UsRUQ
 
 5 vs 5 + goalie zoals bij de senioren: https://www.youtube.com/watch?v=9hCNO6csEWU
 
