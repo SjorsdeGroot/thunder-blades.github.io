@@ -17,6 +17,8 @@ Wanneer: 16:00 – 17:00 (graag 15:45 aanwezig)
 
 Voor wie: Groep 3 - 8
 
+Kosten: Gratis
+
 Wij hebben het floorball materiaal , dus je hoeft alleen je normale gymspullen mee te nemen.
 Aanmelden kan door een mailtje te sturen naar [bestuur.floorballenschede@gmail.com](mailto:bestuur.floorballenschede@gmail.com) of via een berichtje naar 06 31209134 (Sjors de Groot)
 
