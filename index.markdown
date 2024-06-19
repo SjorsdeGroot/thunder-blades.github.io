@@ -5,7 +5,7 @@ title: Home
 layout: home
 ---
 
-# Open training 24 juni, 1 juli & juli
+# Open training 24 juni, 1 juli & 8 juli
 
 Op maandag 24 juni, 1 juli en 8 juli kun je tot aan de zomervakantie nog 3 keer gratis een floorball les uitproberen. Je sluit hierbij aan bij een groep kinderen leeftijd 7 - 12~ die het afgelopen half jaar zijn begonnen met floorball. 
 
