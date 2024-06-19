@@ -5,7 +5,7 @@ permalink: /bestuur/
 ---
 
 # Sjors de Groot
-Ik speel nu zo’n 10 jaar floorball. Op de middelbare school speelden we vaak unihockey, maar dit kon ik niet als sport spelen. In Enschede aan de universiteit Twente bleek dit wel mogelijk te zijn bij de floorball vereniging Messed Up. Ik heb een open training meegedaan en was eigenlijk direct verliefd op de sport en de vereniging. 
+Ik speel nu zo’n 10 jaar floorball. Op de middelbare school speelden we vaak unihockey, maar dit kon ik niet als sport spelen. In Enschede aan de universiteit Twente bleek dit wel mogelijk te zijn bij de floorball vereniging Messed Up. Ik heb een open training meegedaan en was eigenlijk direct verliefd op de sport en de vereniging. Vanwege het kleine veld, de boarding om het veld en de kleine hoeveelheid regels is de sport super snel en is iedereen altijd deel van het spel.
 
 Het plezier wat ikzelf heb tijdens het floorballen zie ik ook bij veel verenigingsgenoten en andere floorballers in Nederland terug. Ook bij clinics en trainingen aan kinderen straalt het plezier van de gezichtjes af. Ik zou het fantastisch vinden als we de kinderen dit plezier wekelijks kunnen geven.
 
