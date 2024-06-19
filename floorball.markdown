@@ -4,6 +4,12 @@ title: Wat is floorball?
 permalink: /floorball/
 ---
 
+4 vs 4 zoals bij de jeugd: 
+
+5 vs 5 + goalie zoals bij de senioren: https://www.youtube.com/watch?v=9hCNO6csEWU
+
+3 vs 3 + goalie (alternatieve spelvorm): https://www.youtube.com/watch?v=-NRGEsJXcWM
+
 Floorball is de snelste zaalsport te wereld. De sport is ontstaan in Scandinavië vanuit ijshockey en nu hard bezig heel Europa en de rest van de wereld te veroveren. 
 In Nederland is de sport op basisscholen soms ook wel bekend als unihockey.
 
@@ -20,6 +26,4 @@ Een paar van de belangrijkste regels.
 
 Omdat de bal (bijna) altijd in het veld blijft, en er weinig regels zijn, blijft het spelletje lekker doorgaan. Iedereen wordt bij het spel betrokken en inzet bepaald (zeker bij de jeugd) een heel groot deel van hoe goed het gaat.
 
-4 vs 4 zoals bij de jeugd: 
-5 vs 5 + goalie zoals bij de senioren: https://www.youtube.com/watch?v=9hCNO6csEWU
-3 vs 3 + goalie (alternatieve spelvorm): https://www.youtube.com/watch?v=-NRGEsJXcWM
+
