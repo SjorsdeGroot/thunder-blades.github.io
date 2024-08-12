@@ -24,4 +24,4 @@ Omdat de bal (bijna) altijd in het veld blijft, en er weinig regels zijn, blijft
 - Er staat een boarding om het veld, waardoor de bal eigenlijk altijd in het veld blijft.
 - Het goaltje staat niet op de achterlijn maar een paar meter naar voren. Hierdoor kan je ook achter de goal langs aanvallen.
 - De bal en de stick zijn gemaakt van plastic en zijn beide heel erg licht. Het balletje heeft niet voldoende massa om schade te veroorzaken. Geraakt worden door het balletje is vaak meer de schrik dan dat het pijn doet. In het ergste geval heeft iemand een blauwe plek die na een paar dagen weer verdwenen is. 
-- Een floorball team bestaat (bij de jeugd) uit 4 spelers. Het veld is de grootte van een gymzaal (de typische school gymzaal, dus maar een klein deel van een grote sporthal). Bij de senioren zijn er 5 veldspelers en een goalie, dan wordt er gespeeld in een volledig sporthal. 
+- Een floorball team bestaat (bij de jeugd) uit 4 spelers. Het veld is de grootte van een school gymzaal (1/3 sporthal). Bij de senioren zijn er 5 veldspelers en een goalie, dan wordt er gespeeld in een volledig sporthal. 
