@@ -4,21 +4,21 @@ title: Wat is floorball?
 permalink: /floorball/
 ---
 
-4 vs 4 zoals bij de jeugd: https://www.youtube.com/watch?v=EdHDi4UsRUQ
+Floorball bij de jongere jeugd, 4 vs 4 met kleine goaltjes: https://www.youtube.com/watch?v=ortc-f__i-A
+
+Floorball bij de oudere jeugd, 3 vs 3 + goalie: https://www.youtube.com/watch?v=gVcACFgONGg
 
 5 vs 5 + goalie zoals bij de senioren: https://www.youtube.com/watch?v=9hCNO6csEWU
-
-3 vs 3 + goalie (alternatieve spelvorm): https://www.youtube.com/watch?v=-NRGEsJXcWM
 
 Floorball is de snelste zaalsport te wereld. De sport is ontstaan in Scandinavië vanuit ijshockey en nu hard bezig heel Europa en de rest van de wereld te veroveren. 
 In Nederland is de sport op basisscholen soms ook wel bekend als unihockey.
 
 De sport lijkt eigenlijk helemaal niet op hockey, behalve dat er een stick en een bal wordt gebruikt. De sport lijkt het meest op ijshockey in de zaal (zonder bodychecks, met een balletje, en op schoenen).
 
-Omdat de bal (bijna) altijd in het veld blijft, en er weinig regels zijn, blijft het spelletje lekker doorgaan. Iedereen wordt bij het spel betrokken en inzet bepaald (zeker bij de jeugd) een heel groot deel van hoe goed het gaat.
+Omdat de bal (bijna) altijd in het veld blijft en er weinig regels zijn, blijft het spelletje lekker doorgaan. Iedereen wordt bij het spel betrokken en inzet bepaald (zeker bij de jeugd) een heel groot deel van hoe goed het gaat.
 
 # Een paar van de belangrijkste regels.
-- Veiligheid staat voorop. Een hoge stick is niet toegestaan, slidings ook niet. 
+- Veiligheid staat voorop. Een hoge stick is niet toegestaan, slidings ook niet. De spelers dragen een veiligheidsbril.
 - Je mag beide kanten van de stick gebruiken.
 - Je mag de bal met de voeten spelen.
 - Er staat een boarding om het veld, waardoor de bal eigenlijk altijd in het veld blijft.
