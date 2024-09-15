@@ -11,11 +11,10 @@ Van 12 tot 14 jaar wordt er 3 vs 3 + goalie gespeeld op een kleiner veld. Deze v
 
 Tot aan 12 speelt de jeugd 4 vs 4 met een klein goaltje zonder vaste goalie. Ook deze versie wordt bij de senioren competitief gespeeld, echter met vooral recreatieve spelers: https://www.youtube.com/watch?v=ortc-f__i-A
 
-# Wat is floroball?
-Floorball is de snelste zaalsport te wereld. De sport is ontstaan in Scandinavië vanuit ijshockey en nu hard bezig heel Europa en de rest van de wereld te veroveren. 
-In Nederland is de sport op basisscholen soms ook wel bekend als unihockey.
+# Wat is floorball?
+Floorball is de snelste zaalsport te wereld. De sport is ontstaan in Scandinavië vanuit ijshockey en nu hard bezig heel Europa en de rest van de wereld te veroveren. In Nederland is de sport op basisscholen soms ook wel bekend als unihockey.
 
-De sport lijkt eigenlijk helemaal niet op hockey, behalve dat er een stick en een bal wordt gebruikt. De sport lijkt het meest op ijshockey in de zaal (zonder bodychecks, met een balletje, en op schoenen).
+De sport lijkt eigenlijk helemaal niet op hockey, behalve dat er een stick en een bal worden gebruikt. De sport lijkt het meest op ijshockey in de zaal (zonder bodychecks, met een balletje, en op schoenen).
 
 Omdat de bal (bijna) altijd in het veld blijft en er weinig regels zijn, blijft het spelletje lekker doorgaan. Iedereen wordt bij het spel betrokken en inzet bepaald (zeker bij de jeugd) een heel groot deel van hoe goed het gaat.
 
