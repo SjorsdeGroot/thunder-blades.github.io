@@ -11,8 +11,8 @@ permalink: /kosten/
 - In de 1e periode koopt het lid een stick (en veiligheidsbril), maar betaalt nog geen contributie. Daarna wordt elke periode contributie betaalt.
 
 Einde lidmaatschap:
-- Aan het eind van het jaar kan het lid afgemeld worden voor het jaar erna.
-- Het is niet mogelijk gedurende het jaar het lidmaatschap te beëindigen.
+- Het is niet mogelijk gedurende het jaar (1 augustus - 31 juli) het lidmaatschap te beëindigen.
+- Het lidmaatschap voor het komende seizoen kan tot uiterlijk 1 juli schriftelijk worden opgezegd. 
 
 # Kosten:
 Contributie:                        
