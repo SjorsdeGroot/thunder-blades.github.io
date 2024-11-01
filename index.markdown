@@ -5,9 +5,10 @@ title: Home
 layout: home
 ---
 
-# Open training 23 september, 30 september en 7 oktober
+# Open training maandag 16:00-17:00
 
-Op maandag 23 september, 30 september en 7 oktober kun je 3 keer gratis een floorball les uitproberen vanuit het initiatief 'Sjors sportief'. Deze lessen staan specifiek in het teken van nieuwe spelers. Je sluit aan bij een groep kinderen leeftijd 7 - 12~ die het afgelopen half jaar zijn begonnen met floorball. 
+Leuk dat je hier op de site terecht bent gekomen!
+Op maandagen van 16:00-17:00 verwelkomen wij graag nieuwe kinderen die een keertje floorball willen uitproberen. Je kan 3 keer gratis een floorball les uitproberen.  Je sluit aan bij een groep kinderen leeftijd 7 - 12~ die het afgelopen half jaar zijn begonnen met floorball. 
 
 De training wordt gegeven door Sjors, die ook de clinics heeft gegeven.
 
